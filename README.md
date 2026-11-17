@@ -15,6 +15,6 @@
 
 <br>
 
-<a href="https://straw.page">love♥︎list</a>
+<a href="https://llukaslovelist.straw.page">love♥︎list</a>
 
 </div>
