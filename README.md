@@ -1,6 +1,6 @@
 <div align="center">
 
-> better viewed on PC (,,>﹏<,,)  +  profile views wont show up (⇀‸↼‶)
+> better viewed on PC (,,>﹏<,,)
 
 ୨ㅤ࣪ㅤ𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡 ୨୧ 𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡𓎢𓎠𓎟𓎠𓎡ㅤ࣪ㅤ୧۪
 ![](https://komarev.com/ghpvc/?username=skyuucloud&color=red&base=2087&label=think+about+me+will)
